@@ -1,0 +1,1 @@
+c:\Users\Privat\Desktop\Virus\0Escape.vbs
